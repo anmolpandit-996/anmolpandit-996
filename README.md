@@ -39,7 +39,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **anmolpandit996@gmail.com**
 
-- ⚡ Fun fact **I am in a bussiness that will keep me learning new skills till the time I am in this bussiness.**
+- ⚡ Fun fact **I am in a business that will keep me learning new skills till the time I am in this business.**
 
 ## 🚀 Languages and Tools:
 
