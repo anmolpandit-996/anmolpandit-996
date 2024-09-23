@@ -33,7 +33,7 @@ Here are some ideas to get you started:
 
 - 💬 Ask me about **anything if i do not know, i will figure it.**
 
-- 👨‍💻 All of my projects are available at **[My Guthub](https://github.com/anmolpandit-996)**
+- 👨‍💻 All of my projects are available at **[My Github](https://github.com/anmolpandit-996)**
 
 - 😄 Pronouns: He/His
 
